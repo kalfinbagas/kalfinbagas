@@ -5,9 +5,9 @@
 
 - 📫 How to reach me **kalfinbagas@gmail.com**
 
-- 📄 Know about my experiences [https://kalfinporto.000webhostapp.com](https://kalfinporto.000webhostapp.com)
 
-<h3 align="left">Connect with me:</h3>
+
+
 <p align="left">
 </p>
 
